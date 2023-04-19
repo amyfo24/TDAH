@@ -50,7 +50,7 @@ El TDAH al tener síntomas  similares a los causados por otras afecciones, como 
 
 Los científicos estudian las causas y que factores influyen para tratar de controlar y reducir las probabilidades de que una persona llegue a presentar trastornos como el TDAH. No se conocen mucho sus causas, sin embargo, investigaciones actuales muestran que la genética tiene un papel importante, tanto en niños como en adultos. Por otra parte, si hablamos solo de población adulta, algunos factores como problemas durante el desarrollo, pueden ser los causantes de este tipo de alteraciones.(Mayo Clinic, 2023)
 
-<u>Complicaciones<u>
+*Complicaciones*
 
 Las personas en edad adulta con TDAH presentan consecuencias en su vida diaria por los diferentes procesos por los que tienen que pasar, como el fracaso académico, riesgo a sufrir un accidente, son propensos a cometer delitos, y una de las más comunes y frecuentes son los [problemas laborales](https://neurodoza.com/dificultades-de-un-adulto-con-tdah-en-el-ambito-laboral/) (Lopez, s.f)
 
