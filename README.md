@@ -6,7 +6,7 @@
 
 ## Signos y síntomas en niños y niñas
 
-<u>Un niño con TDAH puede presentar las siguientes conductas:</u>
+<u> Un niño con TDAH puede presentar las siguientes conductas: <u>
 
 - Fantasear.
 
